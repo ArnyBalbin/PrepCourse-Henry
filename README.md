@@ -1,2 +1,2 @@
-es una una prueba e como cambiar el texto  de la pagina
-xdddddd
+Creo que ya lo estoy entendiendo
+Vamo paso a paso
